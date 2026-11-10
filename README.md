@@ -1,0 +1,2 @@
+# HNC GAME DO QUICKLY
+
